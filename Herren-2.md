@@ -9,4 +9,4 @@ Drei Siege auf dem Konto mag man sich denken, Tabellenrang 6/8 - sollte doch eig
 
 So müssen unsere Jungs also in 2023 wieder in der Bezirksliga A an den Start und werden einen erneuten Anlauf auf die BOL nehmen, die uns so gut zu Gesicht stand und die wir wohl in einer weniger dichten Saison hätten halten können.
 
-Für die Herren II gingen an den Start: Philipp Müller, Jan Stetzer, Nico Cupaiuolo, Fabio König, Zsolt Ferdinand, Milan Drahovsky, Jan Mährländer, Konrad Walke, Constantin Donskoj, Tjard Pepelnik, Lars Nockmann, Dennis Nickel, Volker Jelinek, Dusan Bisercic, Christopher Hill
+Für die Herren II gingen an den Start: Philipp Müller, Jan Stetzer, Nico Cupaiuolo, Fabio König, Zsolt Ferdinand, Milan Drahovsky, Jan Mährländer, Konrad Walke, Constantin Donskoj, Tjard Pepelnik, Lars Nockmann, Dennis Nickel, Volker Jelinek, Dusan Bisercic, Christopher Hill (MF)

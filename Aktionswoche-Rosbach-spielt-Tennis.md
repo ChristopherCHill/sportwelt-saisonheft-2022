@@ -8,12 +8,14 @@
 ## Aktionstage KiTa "Die Sang"
 Den Auftakt zu einer sehr arbeitsintensiven Woche im Vorfeld unseres diesjährigen Tages der offenen Tür, bildeten die Aktionstage mit der Benachbarten integrativen KiTa "Die Sang". 
 
-An drei Tagen der letzten Aprilwoche gestaltete die Tennisschule Conny Stetzer & Zsolt Ferdinand den gesamten Vormittagsbereich der KiTa-Gruppe "XXX" in Sportwelt und Halli-Galli. Dass das typische Aprilwetter den Gutteil der Tage in die Halle zwang, tat dem ganzen aber keinen Abbruch. 
+An drei Tagen der letzten Aprilwoche gestaltete die Tennisschule Conny Stetzer & Zsolt Ferdinand den gesamten Vormittagsbereich der KiTa-Gruppe "XXX" in Sportwelt und Halli-Galli. Dass das typische Aprilwetter den Gutteil der Tage in die Halle zwang, tat dem ganzen aber keinen Abbruch.
 
 Ein Abwechlungsreicher Stationsparkour bestehend aus grundmotorischen Übungen, Fußball, Hockey und Tennis und natürlich der abschließende Abstecher ins Halli-Galli sorgten für Kurzweile bei Kindern, Erzieher:Innen und Trainerteam. 
 
 ## Aktionstage Kapersburg Grundschule
+260 Kinder der 2., 3. und 4. Klassen an drei Tagen, das ist die tolle Bilanz unserer Aktion mit der Kapersburg Grundschule. Aus Termingründen konnte nur der Aktionstag mit den 4. Klassen auch in der letzten Aprilwoche stattfinden, die 2. und 3. Klassen wurde zu einem späteren Zeitpunkt im Mai durchgeführt.
 
+Inhaltlich stand das bewährte Format des HTV-Grundschulcups auf dem Programm. Die Zweiteilung des Tages in Vielseitigkeitsübungen (Fächerlauf, Balltransport, Dreisprung und Ballzielwurf) und Kleinfeldtennis ist zwar mit hohem Aufwand für das Orgateam verbunden, verspricht aber auch jenen Kindern, die bisher noch nicht mit Tennis in Berührung kamen, ein Erfolgserlebnis. Und glücklicherweise stellten sie die Aktionstage mit der Kapersburg Grundschule als voller Erfolg heraus. Einige Kinder und teils auch deren Eltern konnten kurze Zeit später als Neumitglieder verzeichnet werden.
 
 ## Die Sportwelt auf dem Rosbacher Bauernmarkt
 Als hätten sie noch nicht genug - gerade den ersten Aktionstag mit der vierten Klasse der Kapersburggrundschule absolviert und den Tag der offenen Tür tagsdarauf vor der Brust, machten sich Chris und Conny bewaffnet mit Kleinfeldnetz, allerhand Trainingsmaterial, Rollups und Flyern auf den Weg zum Rosbacher Bauernmarkt. 
